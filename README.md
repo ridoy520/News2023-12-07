@@ -58,6 +58,9 @@
 
 "বাংলাদেশের উন্নয়নের ধারা অব্যাহত থাকবে"
 
+PopSockets Phone Grip with Expanding Kickstand, Proud Parent - Furever Friend
+Details:
+https://amzn.to/41diQI1
 
 
 আজকের সেরা খবর (২০২৩-১২-০৭)
@@ -116,7 +119,9 @@
 রাশিয়া ইউক্রেনে সামরিক অভিযান চালিয়ে যাচ্ছে।
 
 
-
+PopSockets Phone Grip with Expanding Kickstand, Proud Parent - Furever Friend
+Details:
+https://amzn.to/3RcMd8V
 
 
 ব্যবসায়
@@ -164,4 +169,6 @@
 বাংলাদেশের নির্বাচন ব্যবস্থায় সংস্কারের প্রয়োজন
 বাংলাদেশের নির্বাচন ব্যবস্থায় সংস্কারের প্রয়োজন বলে মনে করেন অনেকে। তারা মনে করেন, বর্তমান নির্বাচন ব্যবস্থায় ভোট কারচুপির সম্ভাবনা রয়েছে। 
 
-
+PopSockets Phone Grip with Expanding Kickstand - Black
+Details:
+https://amzn.to/3t5fwCg
